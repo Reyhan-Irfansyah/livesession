@@ -1,5 +1,5 @@
 
-jawaban asal 
+asal
 tambah jawaban
 
 jawaban asal
